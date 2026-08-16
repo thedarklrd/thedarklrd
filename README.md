@@ -22,7 +22,7 @@ istp, 4teen.
 
 [![db2406a166107d527ca101422bff2d53.jpg](https://i.postimg.cc/4d4YNSTK/db2406a166107d527ca101422bff2d53.jpg)](https://postimg.cc/jW9xMv2K)
 
-  [guns](https://guns.lol/thedarklord./)
-
+[guns](https://guns.lol/thedarklord./) [strawp](https://lovelyeye.straw.page)
+[ata](thedarklrd.atabook.org)
 [![tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png](https://i.postimg.cc/Hs2qYHTS/tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png)](https://postimg.cc/w71f2CyJ)
 
