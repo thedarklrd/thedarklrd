@@ -2,7 +2,7 @@
 
 [![e34386a942263e38ffea0bca74fc9a8d.jpg](https://i.postimg.cc/CKs5YKmH/e34386a942263e38ffea0bca74fc9a8d.jpg)](https://postimg.cc/t17pN90Y)
 [![tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png](https://i.postimg.cc/8Cq3Kzbd/tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png)](https://postimg.cc/f3fBkZpk)
-int/bmf freely but pls iwc and read strawpage, also c+h is enc. 
+int(public chat off if i was alone)/bmf freely but read strawpage first, also c+h is enc. 
 in pt 24/7(not always)
 [![089ff677.gif](https://i.postimg.cc/Sj04FGqQ/089ff677.gif)](https://postimg.cc/fSvpYmJ1)
 istp, 4teen.
