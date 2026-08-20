@@ -22,6 +22,8 @@ in pt 24/7(not always)istp, 4teen.
 
 
 [![tumblr-97d321d2267cb844110d1c5515f98eba-298a8e18-1280.png](https://i.postimg.cc/5ygmDyfD/tumblr-97d321d2267cb844110d1c5515f98eba-298a8e18-1280.png)](https://postimg.cc/2LqvZzbx)
+
+
 [guns](https://guns.lol/thedarklord./) [strawp](https://thedarklrd.straw.page)
 
 [![tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png](https://i.postimg.cc/Hs2qYHTS/tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png)](https://postimg.cc/w71f2CyJ)
