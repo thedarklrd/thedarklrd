@@ -4,7 +4,6 @@
 [![tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png](https://i.postimg.cc/8Cq3Kzbd/tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png)](https://postimg.cc/f3fBkZpk)
 int(public chat off if i was alone)/bmf freely but read strawpage first, also c+h is enc. 
 in pt 24/7(not always)istp, 4teen.
-
 [![0bb68571.gif](https://i.postimg.cc/X7L0Vk29/0bb68571.gif)](https://postimg.cc/nCXW2BfL)
 
 [![tumblr-d3615cc187f6253cf271db2d12a53aa0-e65b40a7-250.gif](https://i.postimg.cc/13wGQR0m/tumblr-d3615cc187f6253cf271db2d12a53aa0-e65b40a7-250.gif)](https://postimg.cc/mPZz3s6J) [![8501bd6a.png](https://i.postimg.cc/bvY99cnC/8501bd6a.png)](https://postimg.cc/BjyFJzMH)
