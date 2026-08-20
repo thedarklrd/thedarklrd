@@ -17,6 +17,7 @@ in pt 24/7(not always)istp, 4teen.
 
 [![Hits](https://hits.sh/github.com/hiopes.svg?style=for-the-badge&label=Drink%20my%20blood&extraCount=32&color=540001&labelColor=000000&logo=Glitch)](https://hits.sh/github.com/hiopes/)
 
+[![tumblr-aa092bd90e2fc9ee9bc85360fd1ba0df-e99453b1-1280.png](https://i.postimg.cc/Qt093TWc/tumblr-aa092bd90e2fc9ee9bc85360fd1ba0df-e99453b1-1280.png)](https://postimg.cc/340JjW1w)
 [![Cursor.png](https://i.postimg.cc/0yF0TLq0/Cursor.png)](https://postimg.cc/gxyhRtjx)
 
 
