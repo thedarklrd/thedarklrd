@@ -17,12 +17,10 @@ in pt 24/7(not always)istp, 4teen.
 
 [![Hits](https://hits.sh/github.com/hiopes.svg?style=for-the-badge&label=Drink%20my%20blood&extraCount=32&color=540001&labelColor=000000&logo=Glitch)](https://hits.sh/github.com/hiopes/)
 
+[![Cursor.png](https://i.postimg.cc/0yF0TLq0/Cursor.png)](https://postimg.cc/gxyhRtjx)
 
 
-[![04865cd8fff90400024eec1ffcc40306.jpg](https://i.postimg.cc/Rh6VWrpJ/04865cd8fff90400024eec1ffcc40306.jpg)](https://postimg.cc/wRzdrrp9)
-
-[![db2406a166107d527ca101422bff2d53.jpg](https://i.postimg.cc/4d4YNSTK/db2406a166107d527ca101422bff2d53.jpg)](https://postimg.cc/jW9xMv2K)
-
+[![tumblr-97d321d2267cb844110d1c5515f98eba-298a8e18-1280.png](https://i.postimg.cc/5ygmDyfD/tumblr-97d321d2267cb844110d1c5515f98eba-298a8e18-1280.png)](https://postimg.cc/2LqvZzbx)
 [guns](https://guns.lol/thedarklord./) [strawp](https://thedarklrd.straw.page)
 
 [![tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png](https://i.postimg.cc/Hs2qYHTS/tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png)](https://postimg.cc/w71f2CyJ)
