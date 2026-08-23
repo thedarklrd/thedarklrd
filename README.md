@@ -1,27 +1,18 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=2000&color=800909&width=435&lines=%22the+one%22;%22who+kills+you+tenderly%22;%22you+found+a+part+of+a+key%22;%22i+locked+the+door%22;%22i+don't+prefer+to+be.%22;%22a+kind+of+poetry.%22;%22I've+got+the+power+to+see%22;%22a+story+dies.%22;%22before+i+start+to+flee%22;%22the+only+pain+comes+over+me.%22;%22touched+by+the+hands+of+lie%22;%22i+don't+believe.%22;%22and+even+if+you+die.%22;%22it+is+a+Lie.%22;%22you+will+lie.%22;%22you+will+lie.%22;%22don't+tell+me+i+can't+stand+the+pain.%22;%22you+kissed+that+creature+in+the+rain..%22;%22don't+tell+me+i+can't+stand+the+pain..%22;%22don't+tell+me.%22;%22now+there's+nothing+to+know%22;%22once+again%22;%22Time+for+You+to+Go.%22)](https://git.io/typing-svg)
+[![IMG-1007.gif](https://i.postimg.cc/3R3fd5bj/IMG-1007.gif)](https://postimg.cc/McrmF4wX)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&duration=500&pause=2000&color=929690&width=435&lines=My+mind+starts+tripping;A+tear+drops+my+eye+;My+body+temperature+falls;I'm+shaking+and+they+break+in;Trying+to+save+the+Dogg+;Pumping+on+my+chest+;And+I'm+screaming;I+stop+breathing%2C+damn+i+see+demons+;Dear+god%2C+i+wonder+can+you+save+me;I+can't+die;+my+boo+boo's+'bout+to+have+my+baby;I+think+it's+too+late+for+praying;Hold+up;A+voice+spoke+to+me+;And+it+slowly+started+saying+;(%22bring+your+lifestyle+to+me%22);(%22I'll+make+it+better.%22);How+long+will+i+live%3F;(%22Eternal+life+and+Forever.%22);And+will+i+be+the+G+that+i+was%3F;(%22I'll+make+your+life+better%22);(%22than+you+can+imagine%22)+;(%22or+even+dreamed+of%22);(%22so+relax+your+soul.%22);(%22let+me+take+control.%22);(%22close+your+eyes+my+son.%22);My+eyes+are+closed..)](https://git.io/typing-svg)
 
-[![e34386a942263e38ffea0bca74fc9a8d.jpg](https://i.postimg.cc/CKs5YKmH/e34386a942263e38ffea0bca74fc9a8d.jpg)](https://postimg.cc/t17pN90Y)
-[![tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png](https://i.postimg.cc/8Cq3Kzbd/tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png)](https://postimg.cc/f3fBkZpk)
-int(public chat off if i was alone)/bmf freely but read strawpage first, also c+h is enc. enfp, 4teen.
-[![0bb68571.gif](https://i.postimg.cc/X7L0Vk29/0bb68571.gif)](https://postimg.cc/nCXW2BfL)
+[![Untitled112-20241020171021.png](https://i.postimg.cc/DySjWc5M/Untitled112-20241020171021.png)](https://postimg.cc/TpXqFgzV)
 
-[![tumblr-d3615cc187f6253cf271db2d12a53aa0-e65b40a7-250.gif](https://i.postimg.cc/13wGQR0m/tumblr-d3615cc187f6253cf271db2d12a53aa0-e65b40a7-250.gif)](https://postimg.cc/mPZz3s6J) [![8501bd6a.png](https://i.postimg.cc/bvY99cnC/8501bd6a.png)](https://postimg.cc/BjyFJzMH)
-[![tumblr-3e3dfa9b95782ea39fc408daababc6fc-24c568c7-250.gif](https://i.postimg.cc/T33x8hvx/tumblr-3e3dfa9b95782ea39fc408daababc6fc-24c568c7-250.gif)](https://postimg.cc/kBzzKJ5Y) [![e2d85237.gif](https://i.postimg.cc/W3Czzgj6/e2d85237.gif)](https://postimg.cc/sQPs0BMv)
-[![tumblr-719d1c37177c0f12aab3e51876fa96f1-b6d1961f-250.gif](https://i.postimg.cc/BvtJFbhs/tumblr-719d1c37177c0f12aab3e51876fa96f1-b6d1961f-250.gif)](https://postimg.cc/LqKdK9K0) [![ifaxp3.gif](https://i.postimg.cc/fL41bRpJ/ifaxp3.gif)](https://postimg.cc/94pL8CWh)
+int(public chat off if i was alone)/bmf freely but read strawpage first, also c+h is very very enc. enfp, 4teen.[![IMG-2334.gif](https://i.postimg.cc/63D47N96/IMG-2334.gif)](https://postimg.cc/5YS2GTYD)
 
+not always 24/7 especially next week.
+[![ciyv9s.gif](https://i.postimg.cc/8cZ8KTjg/ciyv9s.gif)](https://postimg.cc/XBBDXSfs)[![IMG-2339.gif](https://i.postimg.cc/wjK2CSLg/IMG-2339.gif)](https://postimg.cc/MvD1R39F)
 
+[![d413122b0ea6990afea1c2f2985fda80.jpg](https://i.postimg.cc/CKckH3xk/d413122b0ea6990afea1c2f2985fda80.jpg)](https://postimg.cc/XZyrnDFY)
 
-
-
-[![Hits](https://hits.sh/github.com/hiopes.svg?style=for-the-badge&label=Drink%20my%20blood&extraCount=32&color=540001&labelColor=000000&logo=Glitch)](https://hits.sh/github.com/hiopes/)
-
-[![tumblr-aa092bd90e2fc9ee9bc85360fd1ba0df-e99453b1-1280.png](https://i.postimg.cc/Qt093TWc/tumblr-aa092bd90e2fc9ee9bc85360fd1ba0df-e99453b1-1280.png)](https://postimg.cc/340JjW1w)
-[![Cursor.png](https://i.postimg.cc/0yF0TLq0/Cursor.png)](https://postimg.cc/gxyhRtjx)
-[guns](https://guns.lol/thedarklord./) [strawp](https://thedarklrd.straw.page)
+[![tumblr-64a4b506d3eaf14a56af8f93d45bae4b-b3d2449f-250.jpg](https://i.postimg.cc/rFYX5yBg/tumblr-64a4b506d3eaf14a56af8f93d45bae4b-b3d2449f-250.jpg)](https://postimg.cc/zVWcrNXR)
 
 
-[![tumblr-97d321d2267cb844110d1c5515f98eba-298a8e18-1280.png](https://i.postimg.cc/5ygmDyfD/tumblr-97d321d2267cb844110d1c5515f98eba-298a8e18-1280.png)](https://postimg.cc/2LqvZzbx)
-
-
-[![tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png](https://i.postimg.cc/Hs2qYHTS/tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png)](https://postimg.cc/w71f2CyJ)
-
+[strawp](https://thedarklrd.straw.page)
+[ata](https://darklrd.atabook.org)
+[![Untitled112-20241020171027.png](https://i.postimg.cc/fy92XZmx/Untitled112-20241020171027.png)](https://postimg.cc/PvdQsg6x)
