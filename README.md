@@ -2,6 +2,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&duration=500&pause=2000&color=929690&width=435&lines=My+mind+starts+tripping;A+tear+drops+my+eye+;My+body+temperature+falls;I'm+shaking+and+they+break+in;Trying+to+save+the+Dogg+;Pumping+on+my+chest+;And+I'm+screaming;I+stop+breathing%2C+damn+i+see+demons+;Dear+god%2C+i+wonder+can+you+save+me;I+can't+die;+my+boo+boo's+'bout+to+have+my+baby;I+think+it's+too+late+for+praying;Hold+up;A+voice+spoke+to+me+;And+it+slowly+started+saying+;(%22bring+your+lifestyle+to+me%22);(%22I'll+make+it+better.%22);How+long+will+i+live%3F;(%22Eternal+life+and+Forever.%22);And+will+i+be+the+G+that+i+was%3F;(%22I'll+make+your+life+better%22);(%22than+you+can+imagine%22)+;(%22or+even+dreamed+of%22);(%22so+relax+your+soul.%22);(%22let+me+take+control.%22);(%22close+your+eyes+my+son.%22);My+eyes+are+closed..)](https://git.io/typing-svg)
 
 [![Untitled112-20241020171021.png](https://i.postimg.cc/DySjWc5M/Untitled112-20241020171021.png)](https://postimg.cc/TpXqFgzV)
+[![Hits](https://hits.sh/github.com/hiopes.svg?style=for-the-badge&label=Drink%20my%20blood&extraCount=2&color=000000&labelColor=787878&logo=Bat)](https://hits.sh/github.com/hiopes/)
 
 int(public chat off if i was alone)/bmf freely but read strawpage first, also c+h is very very enc. enfp, 4teen.[![IMG-2334.gif](https://i.postimg.cc/63D47N96/IMG-2334.gif)](https://postimg.cc/5YS2GTYD)
 
