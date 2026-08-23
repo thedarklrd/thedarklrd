@@ -16,3 +16,5 @@ not always 24/7 especially next week.
 [strawp](https://thedarklrd.straw.page)
 [ata](https://darklrd.atabook.org)
 [![Untitled112-20241020171027.png](https://i.postimg.cc/fy92XZmx/Untitled112-20241020171027.png)](https://postimg.cc/PvdQsg6x)
+
+[![Tumblr-l-14156453922150-jpg.png](https://i.postimg.cc/VsgBGJL0/Tumblr-l-14156453922150-jpg.png)](https://postimg.cc/9z47zF9c)
