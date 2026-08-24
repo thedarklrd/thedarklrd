@@ -4,9 +4,11 @@
 
 int(public chat off if i was alone)/bmf freely but read strawpage first, also c+h is very very enc. enfp, 4teen.[![IMG-2334.gif](https://i.postimg.cc/63D47N96/IMG-2334.gif)](https://postimg.cc/5YS2GTYD)
 
-not always 24/7, especially next week you'll not see me sm.
+not always 24/7, especially next WEEK you'll not see me sm.
 
 [![ciyv9s.gif](https://i.postimg.cc/8cZ8KTjg/ciyv9s.gif)](https://postimg.cc/XBBDXSfs)[![IMG-2339.gif](https://i.postimg.cc/wjK2CSLg/IMG-2339.gif)](https://postimg.cc/MvD1R39F)
+
+[![tumblr-719d1c37177c0f12aab3e51876fa96f1-b6d1961f-250.gif](https://i.postimg.cc/K8r8cfyX/tumblr-719d1c37177c0f12aab3e51876fa96f1-b6d1961f-250.gif)](https://postimg.cc/WdzvXM3S) [![IMG-1923.gif](https://i.postimg.cc/05TSbVh2/IMG-1923.gif)](https://postimg.cc/RqThYLMj)
 
 [![d413122b0ea6990afea1c2f2985fda80.jpg](https://i.postimg.cc/CKckH3xk/d413122b0ea6990afea1c2f2985fda80.jpg)](https://postimg.cc/XZyrnDFY)
 
