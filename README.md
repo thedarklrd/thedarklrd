@@ -21,7 +21,7 @@ int(public chat off if i was alone)/bmf freely but read strawpage first, also c+
 [ata](https://darklrd.atabook.org)
 [![Untitled112-20241020171027.png](https://i.postimg.cc/fy92XZmx/Untitled112-20241020171027.png)](https://postimg.cc/PvdQsg6x)
 
-$${\color{darkred} don't \space \space be \space \color{darkred} scared, \space i \space \space did \space \color{darkred}this \space \space before.}$$
+$${\color{darkred} i \space \space want \space \color{darkred} hair \space like \space \space your's, \space \color{darkred}hands \space \space like \space\color{darkred} your's \space}$$
 
 [![Tumblr-l-14156453922150-jpg.png](https://i.postimg.cc/VsgBGJL0/Tumblr-l-14156453922150-jpg.png)](https://postimg.cc/9z47zF9c)
 
