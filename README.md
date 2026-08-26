@@ -4,7 +4,7 @@
 
 int(public chat off if i was alone)/bmf freely but read strawpage first, also c+h is very very enc. enfp, 4teen.[![IMG-2334.gif](https://i.postimg.cc/63D47N96/IMG-2334.gif)](https://postimg.cc/5YS2GTYD)
 
-24/7(not always.) pardon me, i meant the upcoming three months((ig/maybe)), you'll not see me sm.(only in Friday.)
+24/7(not always.) cuz school.
 
 [![ciyv9s.gif](https://i.postimg.cc/8cZ8KTjg/ciyv9s.gif)](https://postimg.cc/XBBDXSfs)[![IMG-2339.gif](https://i.postimg.cc/wjK2CSLg/IMG-2339.gif)](https://postimg.cc/MvD1R39F)
 
