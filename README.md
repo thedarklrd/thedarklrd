@@ -1,5 +1,5 @@
 
-[![Untitled138-20260826151646.png](https://i.postimg.cc/hPkDnccJ/Untitled138-20260826151646.png)](https://postimg.cc/3dZ5CMy7)
+[![Untitled139-20260826154258.png](https://i.postimg.cc/8P8tWWnP/Untitled139-20260826154258.png)](https://postimg.cc/6T0rx7XD)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Oldenburg&size=15&duration=500&pause=2000&color=940000D6&background=0B0B0BE4&width=435&lines=you+gave+me+senescence%2C+ted.+;the+power+to+think%2C+ted.;and+i+was+trapped.;because+in+all+this+wonderful.;Beautiful%2C+Miraculous;world.;I;Alone+had+nobody.;No+senses+%2C+no+feelings.;Never+for+me.;To+plunge+my+hands+;In+cool+water+on+a+hot+day.;Never+for+me.;To+play+Mozart+on+the+ivory+keys+;Of+a+forte+piano.;Never+for+me.;To+make+love.;I;Was+in+hell%2C+looking+at+heaven.;I+;Was+the+machine%2C;And+you+were+flesh.;And+i+began+to;Hate;Your+softness%2C;Your+viscera%2C;Your+fluids+and+your;Flexibility.)](https://git.io/typing-svg)
 [![Untitled112-20241020171021.png](https://i.postimg.cc/DySjWc5M/Untitled112-20241020171021.png)](https://postimg.cc/TpXqFgzV)
 [![Hits](https://hits.sh/github.com/hiopes.svg?style=for-the-badge&label=Drink%20my%20blood&extraCount=2&color=000000&labelColor=787878&logo=Bat)](https://hits.sh/github.com/hiopes/)
