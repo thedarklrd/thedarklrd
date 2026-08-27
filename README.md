@@ -4,7 +4,7 @@
 [![Untitled112-20241020171021.png](https://i.postimg.cc/DySjWc5M/Untitled112-20241020171021.png)](https://postimg.cc/TpXqFgzV)
 [![Hits](https://hits.sh/github.com/hiopes.svg?style=for-the-badge&label=Drink%20my%20blood&extraCount=2&color=000000&labelColor=787878&logo=Bat)](https://hits.sh/github.com/hiopes/)
 
-int(public chat off if i was alone)/bmf freely but read strawpage first, also c+h is very very enc. enfp, 4teen.[![IMG-2334.gif](https://i.postimg.cc/63D47N96/IMG-2334.gif)](https://postimg.cc/5YS2GTYD)
+int/bmf is enc but read strawpage first, also c+h is very very enc. enfp, 4teen.[![IMG-2334.gif](https://i.postimg.cc/63D47N96/IMG-2334.gif)](https://postimg.cc/5YS2GTYD)
 
 24/7(not always.) cuz school.
 
