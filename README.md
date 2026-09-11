@@ -1,3 +1,13 @@
+[![Untitled179-20260911220020.png](https://i.postimg.cc/0jbdTDp8/Untitled179-20260911220020.png)](https://postimg.cc/jnY7NWg9)
+
+
+[![Untitled181-20260911222105.png](https://i.postimg.cc/9fkkgdRX/Untitled181-20260911222105.png)](https://postimg.cc/LqzvnZ3G)
+$\color{#731C3E}{semi-afk ~ half ~ of ~ the ~ time.}$
+[![Untitled183-20260911223243.png](https://i.postimg.cc/4yym4T4r/Untitled183-20260911223243.png)](https://postimg.cc/SY0yV3Mr)
+
+[![Untitled179-20260911220002.png](https://i.postimg.cc/yY3ynh1W/Untitled179-20260911220002.png)](https://postimg.cc/7fDzZ2Ty)
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[addi](https://victm.straw.page) [cted.](https://darklrd.atabook.org/)
 
-&emsp;&emsp;&emsp;&emsp;&emsp;[![224bdae5c731ec3565bbb5c7c6b574f7.gif](https://i.postimg.cc/zGx7HHLJ/224bdae5c731ec3565bbb5c7c6b574f7.gif)](https://postimg.cc/XrydTJch)
+[![Untitled183-20260911224918.png](https://i.postimg.cc/sfbTFfgm/Untitled183-20260911224918.png)](https://postimg.cc/mhNYCsM1)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
+$\color{#731C3E}{-⩊-}$
