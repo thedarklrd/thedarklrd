@@ -10,5 +10,5 @@ $\color{#93978E}{more ~ info ~ in ~ my ~ straw}$
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[addi](https://victm.straw.page) [cted.](https://darklrd.atabook.org/)
 
 [![Untitled183-20260911224918.png](https://i.postimg.cc/sfbTFfgm/Untitled183-20260911224918.png)](https://postimg.cc/mhNYCsM1)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
-$\color{#731C3E}{-⩊-}$
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
+$\color{#96A425}{𖤓}$
