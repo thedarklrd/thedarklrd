@@ -11,4 +11,4 @@ $\color{#93978E}{more ~ info ~ in ~ my ~ straw}$
 
 [![Untitled183-20260911224918.png](https://i.postimg.cc/sfbTFfgm/Untitled183-20260911224918.png)](https://postimg.cc/mhNYCsM1)
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
-$\color{#96A425}{𖤓}$
+$\color{#96A425}{✹}$
