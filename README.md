@@ -7,7 +7,8 @@ $\color{#93978E}{more ~ info ~ in ~ my ~ straw}$
 [![Untitled183-20260911223243.png](https://i.postimg.cc/4yym4T4r/Untitled183-20260911223243.png)](https://postimg.cc/SY0yV3Mr)
 $\color{#731C3E}{N-feeling ~ unwell ~ these ~ days, ~ iwc ~ pls.}$
 [![Untitled179-20260911220002.png](https://i.postimg.cc/yY3ynh1W/Untitled179-20260911220002.png)](https://postimg.cc/7fDzZ2Ty)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[addi](https://victm.straw.page) [cted.](https://darklrd.atabook.org/)
+
 [![Untitled183-20260911224918.png](https://i.postimg.cc/sfbTFfgm/Untitled183-20260911224918.png)](https://postimg.cc/mhNYCsM1)
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 $\color{#96A425}{✹}$
