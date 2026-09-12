@@ -9,6 +9,7 @@ $\color{#731C3E}{N-feeling ~ unwell ~ these ~ days, ~ iwc ~ pls.}$
 [![Untitled179-20260911220002.png](https://i.postimg.cc/yY3ynh1W/Untitled179-20260911220002.png)](https://postimg.cc/7fDzZ2Ty)
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[addi](https://victm.straw.page) [cted.](https://darklrd.atabook.org/)
 
+&emsp;&emsp;&emsp;&emsp;&emsp;[![Hits](https://hits.sh/github.com/hiopes.svg?style=for-the-badge&label=creator&extraCount=2&color=4d0825&labelColor=000&logo=stylelint)](https://hits.sh/github.com/hiopes/)
 [![Untitled183-20260911224918.png](https://i.postimg.cc/sfbTFfgm/Untitled183-20260911224918.png)](https://postimg.cc/mhNYCsM1)
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 $\color{#96A425}{✹}$
