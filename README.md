@@ -15,4 +15,4 @@ $\color{#731C3E}{N-feeling ~ unwell ~ these ~ days, ~ iwc ~ pls.}$
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 $\color{#96A425}{✹}$
 [![Untitled189-20260913234023.png](https://i.postimg.cc/B6x8sMMj/Untitled189-20260913234023.png)](https://postimg.cc/34xrFCMh)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#731C3E}{parade.}$
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#731C3E}{parade.}$
