@@ -1,5 +1,6 @@
-[![Untitled188-20260913232744.png](https://i.postimg.cc/G3Fc70T6/Untitled188-20260913232744.png)](https://postimg.cc/MXG2HFDY)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#96A425}{✹}$
 
+[![Untitled189-20260913234023.png](https://i.postimg.cc/B6x8sMMj/Untitled189-20260913234023.png)](https://postimg.cc/34xrFCMh)
 [![Untitled179-20260911220020.png](https://i.postimg.cc/0jbdTDp8/Untitled179-20260911220020.png)](https://postimg.cc/jnY7NWg9)
 [![Untitled181-20260911222105.png](https://i.postimg.cc/9fkkgdRX/Untitled181-20260911222105.png)](https://postimg.cc/LqzvnZ3G)
 $\color{#93978E}{semi-afk ~ half ~ of ~ the ~ time.}$
