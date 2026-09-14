@@ -15,4 +15,4 @@ $\color{#731C3E}{N-feeling ~ unwell ~ these ~ days, ~ iwc ~ pls.}$
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
 $\color{#96A425}{✹}$
 [![Untitled207-20260914160915.png](https://i.postimg.cc/4xGxmmTB/Untitled207-20260914160915.png)](https://postimg.cc/ykfHG6xZ)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#731C3E}{parade- ~ paprika. }$
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#731C3E}{parade- ~ paprika. }$
