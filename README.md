@@ -10,6 +10,7 @@
 
 $\color{#A28839}{semi-afk.}$&emsp;
 $\color{#A39BA7}{sick ~ iwc ~ pls,}$
+$\color{#A48D92}{more ~ info ~ in ~ my ~ straw.}$
 [![5437d4.gif](https://i.postimg.cc/1z6J6zF4/5437d4.gif)](https://postimg.cc/d7s2cw4K)   
 $\color{#A06B56}{c+H ~ enc ~ even ~ if ~ not ~ stated.}$
 [![Untitled216-20260916144002.png](https://i.postimg.cc/fy9tP4RN/Untitled216-20260916144002.png)](https://postimg.cc/8fTzF0vK)
