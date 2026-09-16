@@ -5,7 +5,7 @@
 &emsp;&emsp;&emsp;&emsp;&emsp;[![Hits](https://hits.sh/github.com/hiopes.svg?style=flat-square&label=Creator.&extraCount=1999&color=A28839&labelColor=A28839&logo=Stylelint)](https://hits.sh/github.com/hiopes/)
 
 [![Untitled217-20260916145318.png](https://i.postimg.cc/6QQswn4S/Untitled217-20260916145318.png)](https://postimg.cc/LJGQ3qTB)
-[![Untitled216-20260916161945.png](https://i.postimg.cc/jdD7FFjn/Untitled216-20260916161945.png)](https://postimg.cc/ZChn9jpJ)
+[![Untitled225-20260916180838.png](https://i.postimg.cc/LX0tbqrs/Untitled225-20260916180838.png)](https://postimg.cc/N9m2y0Gh)
 
 $\color{#A28839}{semi-afk.}$&emsp;
 $\color{#A39BA7}{sick ~ iwc ~ pls,}$
