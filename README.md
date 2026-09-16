@@ -20,5 +20,5 @@ $\color{#A06B56}{c+H ~ enc ~ even ~ if ~ not ~ stated.}$
 
 [![Untitled218-20260916153901.png](https://i.postimg.cc/V6hQ6vPn/Untitled218-20260916153901.png)](https://postimg.cc/N9RPCgMj)
 [![Untitled217-20260916154817.png](https://i.postimg.cc/rmDWWn3j/Untitled217-20260916154817.png)](https://postimg.cc/62Nyx094)
-&emsp;&emsp;&emsp; $\color{#A28839}{Charlie ~ inferno.}$ 
+&emsp;&emsp;&emsp; $\color{#A28839}{Charlie ~ inferno.}$ &emsp;
 $\color{#A06B56}{- the ~ handsome ~ devil.}$
