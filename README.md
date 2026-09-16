@@ -1,18 +1,23 @@
-[![Untitled207-20260914160921.png](https://i.postimg.cc/qgfWDhGm/Untitled207-20260914160921.png)](https://postimg.cc/H82SVLR5)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#96A425}{✹}$
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#A28839}{✶ㅤׂ}$ 
 
-[![Untitled202-20260914153132.png](https://i.postimg.cc/tTpQpxQX/Untitled202-20260914153132.png)](https://postimg.cc/R3sbTqZ8)
-[![Untitled203-20260914153117.png](https://i.postimg.cc/sXV8tC7R/Untitled203-20260914153117.png)](https://postimg.cc/1gjJqTvW)
-$\color{#93978E}{semi-afk ~ half ~ of ~ the ~ time.}$
-$\color{#93978E}{more ~ info ~ in ~ my ~ straw}$
-[![Untitled183-20260911223243.png](https://i.postimg.cc/4yym4T4r/Untitled183-20260911223243.png)](https://postimg.cc/SY0yV3Mr)
-$\color{#731C3E}{N-feeling ~ unwell ~ these ~ days, ~ iwc ~ pls.}$
-[![Untitled202-20260914153124.png](https://i.postimg.cc/ryhX2shT/Untitled202-20260914153124.png)](https://postimg.cc/Yjmy1rKD)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[addi](https://victm.straw.page) [cted.](https://darklrd.atabook.org/)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; [addi](https://victm.straw.page) [cted.](https://darklrd.atabook.org/)
 
-&emsp;&emsp;&emsp;&emsp;&emsp;[![Hits](https://hits.sh/github.com/hiopes.svg?style=flat-square&label=Creator&extraCount=2&color=601431&labelColor=000&logo=stylelint)](https://hits.sh/github.com/hiopes/)
-[![Untitled191-20260913234459.png](https://i.postimg.cc/cLQPR39X/Untitled191-20260913234459.png)](https://postimg.cc/75ZBD5y2)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
-$\color{#96A425}{✹}$
-[![Untitled207-20260914160915.png](https://i.postimg.cc/4xGxmmTB/Untitled207-20260914160915.png)](https://postimg.cc/ykfHG6xZ)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#731C3E}{parade- ~ paprika. }$
+
+[![Untitled217-20260916145318.png](https://i.postimg.cc/6QQswn4S/Untitled217-20260916145318.png)](https://postimg.cc/LJGQ3qTB)
+
+[![Untitled216-20260916142050.png](https://i.postimg.cc/FsHw091Q/Untitled216-20260916142050.png)](https://postimg.cc/QVv63Zp6)
+[![Untitled216-20260916142849.png](https://i.postimg.cc/NfXjq77Y/Untitled216-20260916142849.png)](https://postimg.cc/nCHJqmPw)
+
+$\color{#A28839}{semi-afk.}$&emsp;
+$\color{#A39BA7}{sick ~ iwc ~ pls,}$
+[![5437d4.gif](https://i.postimg.cc/1z6J6zF4/5437d4.gif)](https://postimg.cc/d7s2cw4K)   
+$\color{#A06B56}{c+H ~ enc ~ even ~ if ~ not ~ stated.}$
+[![Untitled216-20260916144002.png](https://i.postimg.cc/fy9tP4RN/Untitled216-20260916144002.png)](https://postimg.cc/8fTzF0vK)
+
+[![Untitled216-20260916144112.png](https://i.postimg.cc/pTg3DSG3/Untitled216-20260916144112.png)](https://postimg.cc/R6LPmgzT)
+
+[![Untitled219-20260916154851.png](https://i.postimg.cc/NjQHbfZg/Untitled219-20260916154851.png)](https://postimg.cc/BXwbnsqy)
+
+[![Untitled218-20260916153901.png](https://i.postimg.cc/V6hQ6vPn/Untitled218-20260916153901.png)](https://postimg.cc/N9RPCgMj)
+[![Untitled217-20260916154817.png](https://i.postimg.cc/rmDWWn3j/Untitled217-20260916154817.png)](https://postimg.cc/62Nyx094)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#A28839}{parada.}$ $\color{#A48D92}{- paprika}$
