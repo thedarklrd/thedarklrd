@@ -4,9 +4,7 @@
 
 
 [![Untitled217-20260916145318.png](https://i.postimg.cc/6QQswn4S/Untitled217-20260916145318.png)](https://postimg.cc/LJGQ3qTB)
-
-[![Untitled216-20260916142050.png](https://i.postimg.cc/FsHw091Q/Untitled216-20260916142050.png)](https://postimg.cc/QVv63Zp6)
-[![Untitled216-20260916142849.png](https://i.postimg.cc/NfXjq77Y/Untitled216-20260916142849.png)](https://postimg.cc/nCHJqmPw)
+[![Untitled216-20260916161945.png](https://i.postimg.cc/jdD7FFjn/Untitled216-20260916161945.png)](https://postimg.cc/ZChn9jpJ)
 
 $\color{#A28839}{semi-afk.}$&emsp;
 $\color{#A39BA7}{sick ~ iwc ~ pls,}$
