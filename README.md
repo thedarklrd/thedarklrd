@@ -1,6 +1,6 @@
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#A28839}{✶ㅤׂ}$ 
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; [addi](https://ihatemyselfff.straw.page) [cted.](https://darklrd.atabook.org/)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; [add](https://ihatemyselfff.straw.page) [ict](https://guns.lol/thesun./) [ced.](https://darklrd.atabook.org/)
 
 &emsp;&emsp;&emsp;&emsp;&emsp;[![Hits](https://hits.sh/github.com/hiopes.svg?style=flat-square&label=Creator.&extraCount=1999&color=A28839&labelColor=A28839&logo=Stylelint)](https://hits.sh/github.com/hiopes/)
 
