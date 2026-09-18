@@ -11,7 +11,7 @@ $\color{#9F9BA9}{semi-afk.}$ &emsp; $\color{#9F9BA9}{sick ~ iwc ~ pls,}$
 $\color{#886456}{c+H ~ enc ~ even ~ if ~ not ~ Stated.}$
 [![Untitled234-20260918032145.png](https://i.postimg.cc/d170V9xj/Untitled234-20260918032145.png)](https://postimg.cc/gXWpM3dx)
 [![Untitled235-20260918033544.png](https://i.postimg.cc/kXC709q6/Untitled235-20260918033544.png)](https://postimg.cc/K49XT6Kx)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#9F9BA9}{march ~ 20.}$
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#9F9BA9}{march ~ 20.}$
 [![Untitled219-20260916154851.png](https://i.postimg.cc/NjQHbfZg/Untitled219-20260916154851.png)](https://postimg.cc/BXwbnsqy)
 [![Untitled234-20260918032046.png](https://i.postimg.cc/JzP73gwD/Untitled234-20260918032046.png)](https://postimg.cc/sMGRsTgs)
 [![Untitled217-20260916154817.png](https://i.postimg.cc/rmDWWn3j/Untitled217-20260916154817.png)](https://postimg.cc/62Nyx094)
