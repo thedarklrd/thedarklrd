@@ -2,7 +2,7 @@
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; [add](https://ihatemyselfff.straw.page) [ict](https://guns.lol/thesun./) [ced.](https://darklrd.atabook.org/)
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[![Hits](https://hits.sh/github.com/hiopes.svg?style=flat-square&label=Creator.&extraCount=1999&color=A28839&labelColor=A28839&logo=Stylelint)](https://hits.sh/github.com/hiopes/)
+&emsp;&emsp;&emsp;&emsp;&emsp;[![Hits](https://hits.sh/github.com/hiopes.svg?style=flat-square&label=Creator.&extraCount=1999&color=A28839&labelColor=A28839&logo=Stylelint)](https://hits.sh/github.com/hiopes/)
 
 [![Untitled217-20260916145318.png](https://i.postimg.cc/6QQswn4S/Untitled217-20260916145318.png)](https://postimg.cc/LJGQ3qTB)
 [![Untitled225-20260918032842.png](https://i.postimg.cc/0yfjWjS0/Untitled225-20260918032842.png)](https://postimg.cc/v44GDQ34)
