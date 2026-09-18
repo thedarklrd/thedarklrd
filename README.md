@@ -23,4 +23,4 @@ $\color{#A06B56}{c+H ~ enc ~ even ~ if ~ not ~ stated.}$
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#A28839}{parade.}$ 
 
 &emsp;&emsp;&emsp;&emsp;&emsp;
-$\color{#A06B56}{- paprika.}$
+$\color{#A39BA7}{- paprika.}$
