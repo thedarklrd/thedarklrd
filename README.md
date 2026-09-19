@@ -20,6 +20,6 @@ $\color{#8D7A45}{more ~ info ~ in ~ my ~ strawP.}$
 [![Untitled219-20260916154851.png](https://i.postimg.cc/XNQQhXqh/Untitled219-20260916154851.png)](https://postimg.cc/Th5V5drq)
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#9EC48F}{Care ~ to ~ dance?.}$
 [![Untitled234-20260919201510.png](https://i.postimg.cc/8z8WnVR3/Untitled234-20260919201510.png)](https://postimg.cc/kBcBBzhF)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#8D7A45}{parada.}$ 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#8D7A45}{parade.}$ 
 
 &emsp;&emsp;&emsp;&emsp;&emsp; $\color{#B1F4E1}{- paprika}$
