@@ -1,7 +1,7 @@
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#8D7A45}{✶ㅤׂ}$ 
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; [addi](https://victm.straw.page) [cted.](https://darklrd.atabook.org/)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; [addi](https://ihatemyselfff.straw.page) [cted.](https://darklrd.atabook.org/)
 
 
 [![Untitled234-20260919192652.png](https://i.postimg.cc/Dm3VRZyS/Untitled234-20260919192652.png)](https://postimg.cc/Wq8fksZV)
