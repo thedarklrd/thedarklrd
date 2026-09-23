@@ -16,9 +16,6 @@ $\color{#8D7A45}{more ~ info ~ in ~ my ~ strawP.}$
 [![Untitled234-20260919211208.png](https://i.postimg.cc/HWXyKk2f/Untitled234-20260919211208.png)](https://postimg.cc/w3xMRHnV)
 
 [![Untitled234-20260919201335.png](https://i.postimg.cc/pXcc9yt4/Untitled234-20260919201335.png)](https://postimg.cc/gnRHQzjH)
-
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; $\color{#B1F4E1}{march}$  $\color{#9EC48F}{2}$ $\color{#8D7A45}{O.}$
-
 [![Untitled234-20260919190102.png](https://i.postimg.cc/P5B64cJk/Untitled234-20260919190102.png)](https://postimg.cc/4YQb4Wp8)
 [![Untitled234-20260919201446.png](https://i.postimg.cc/FzDndG5w/Untitled234-20260919201446.png)](https://postimg.cc/V00F2qNF)
 [![Untitled219-20260916154851.png](https://i.postimg.cc/XNQQhXqh/Untitled219-20260916154851.png)](https://postimg.cc/Th5V5drq)
