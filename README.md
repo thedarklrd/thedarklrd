@@ -5,7 +5,7 @@ $\color{#AC8182}{iwcare ~ always}$
 
 $\color{#CFC2AA}{ ~ c+h ~ always ~ encc!}$
 
-
+&emsp;&emsp;&emsp;&emsp;&emsp;  $\color{#F0F5F0}{ blackswan ~ my ~ f/o♥}$
 [![Untitled255-20260925190226.png](https://i.postimg.cc/nrspZG31/Untitled255-20260925190226.png)](https://postimg.cc/SYpwfCFX)
 
 &emsp;&emsp;&emsp;&emsp;&emsp; [strawp](https://theeeesunnnn.straw.page) [gunsl](https://guns.lol/thesun./) [atab.](https://darklrd.atabook.org/)
