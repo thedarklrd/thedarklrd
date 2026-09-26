@@ -5,11 +5,10 @@ $\color{#AC8182}{iwcare ~ always}$
 
 &emsp; $\color{#CFC2AA}{ ~ c+h ~ always ~ encc!}$
 
-&emsp;&emsp;&emsp;&emsp;&emsp;  $\color{#F0F5F0}{ˆ- ⩊ -ˆ ◞}$
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;  $\color{#F0F5F0}{ˆ- ⩊ -ˆ ◞}$
 [![Untitled255-20260925190226.png](https://i.postimg.cc/nrspZG31/Untitled255-20260925190226.png)](https://postimg.cc/SYpwfCFX)
-
+[![Untitled257-20260926180009.png](https://i.postimg.cc/QtRwMc7J/Untitled257-20260926180009.png)](https://postimg.cc/N9kpJ9pK)
 &emsp;&emsp;&emsp;&emsp;&emsp; [strawp](https://theeeesunnnn.straw.page) [gunsl](https://guns.lol/thesun./) [atab.](https://darklrd.atabook.org/)
-
 
 [![Untitled255-20260925190428.png](https://i.postimg.cc/zD9VvyTC/Untitled255-20260925190428.png)](https://postimg.cc/237zX8cy)
 
