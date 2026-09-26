@@ -18,4 +18,12 @@ $\color{#CFC2AA}{I'm ~ friendly ~ trust.}$
 $\color{#764767}{..SIGN ~ MY ~ ATA/STARw ~ pLss.}$ 
 [![Untitled256-20260925192348.png](https://i.postimg.cc/28GRJJjY/Untitled256-20260925192348.png)](https://postimg.cc/GH45TXsg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=15&duration=500&pause=2000&color=764767&background=AC81821E&width=435&lines=%22A+lady+of+elegance+and+dignity%2C..;Her+benevolent+offer+lingers.;In+my+memory..;That+dance...+It+bought+me+a+sense+;Of+warm+and+nostalgia%2C%2C.*)](https://git.io/typing-svg)
+<details>
+  <summary></summary>
+  
+$\color{#F0F5F0}{birthd ~ :}$ $\color{#CFC2AA}{March}$ $\color{#AC8182}{2O}$  
+$\color{#AC8182}{age ~ :}$ 
+$\color{#764767}{l4yo}$
+</details>
+
 [![Untitled255-20260925190014.png](https://i.postimg.cc/vTWMcZdz/Untitled255-20260925190014.png)](https://postimg.cc/K3vCWFjk)
