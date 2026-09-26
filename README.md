@@ -13,7 +13,7 @@ $\color{#AC8182}{iwcare ~ always}$
 
 [![Untitled255-20260925190428.png](https://i.postimg.cc/zD9VvyTC/Untitled255-20260925190428.png)](https://postimg.cc/237zX8cy)
 
-$\color{#F0F5F0}{meow ~ int ~ always}$ 
+$\color{#F0F5F0}{int ~ always}$ 
 $\color{#CFC2AA}{I'm ~ friendly ~ trust.}$ 
 $\color{#AC8182}{moree ~ info ~ in ~ sp}$ 
 $\color{#764767}{..SIGN ~ MY ~ ATA/STARw ~ pLss.}$ 
