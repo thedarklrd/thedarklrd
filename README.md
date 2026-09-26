@@ -5,7 +5,7 @@ $\color{#AC8182}{iwcare ~ always}$
 
 &emsp; $\color{#CFC2AA}{ ~ c+h ~ always ~ encc!}$
 
-&emsp;&emsp;&emsp;&emsp;&emsp;  $\color{#F0F5F0}{ blackswan ~ my ~ f/o♥}$
+&emsp;&emsp;&emsp;&emsp;&emsp;  $\color{#F0F5F0}{ˆ- ⩊ -ˆ ◞}$
 [![Untitled255-20260925190226.png](https://i.postimg.cc/nrspZG31/Untitled255-20260925190226.png)](https://postimg.cc/SYpwfCFX)
 
 &emsp;&emsp;&emsp;&emsp;&emsp; [strawp](https://theeeesunnnn.straw.page) [gunsl](https://guns.lol/thesun./) [atab.](https://darklrd.atabook.org/)
@@ -14,7 +14,7 @@ $\color{#AC8182}{iwcare ~ always}$
 [![Untitled255-20260925190428.png](https://i.postimg.cc/zD9VvyTC/Untitled255-20260925190428.png)](https://postimg.cc/237zX8cy)
 
 $\color{#F0F5F0}{meow ~ int ~ always}$ 
-$\color{#CFC2AA}{I'm ~ friendly ~ trust. -⩊-}$ 
+$\color{#CFC2AA}{I'm ~ friendly ~ trust.}$ 
 $\color{#AC8182}{moree ~ info ~ in ~ sp}$ 
 $\color{#764767}{..SIGN ~ MY ~ ATA/STARw ~ pLss.}$ 
 [![Untitled256-20260925192348.png](https://i.postimg.cc/28GRJJjY/Untitled256-20260925192348.png)](https://postimg.cc/GH45TXsg)
