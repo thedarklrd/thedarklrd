@@ -12,8 +12,8 @@
 
 <details>
   <summary></summary>
-$\color{#B20000DA}{always ~ free ~ to ~ int! ~ I'm ~ friendly ~ indeed}$
-$\color{#870000DA}{~ and ~ c+h ~ is ~ heavilyy ~ enc!!!}$
+$\color{#B3914CBD}{always ~ free ~ to ~ int! ~ I'm ~ friendly ~ indeed}$
+$\color{#DADADAB1}{~ and ~ c+h ~ is ~ heavilyy ~ enc!!!}$
  
 $\color{#B20000DA}{birthd ~ :}$ $\color{#870000DA}{March}$ $\color{#870000DA}{2O}$  
 $\color{#600000DA}{age ~ :}$ 
