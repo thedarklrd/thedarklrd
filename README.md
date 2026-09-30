@@ -1,29 +1,19 @@
-[![Untitled255-20260925185609.png](https://i.postimg.cc/bvTzRJGb/Untitled255-20260925185609.png)](https://postimg.cc/zLyZzqFX)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Oldenburg&size=15&duration=500&pause=2000&color=AC8182&background=76476739&width=435&lines=%22avoid+entering+someone's+past+memories+lightly.;%2C+especially+hers...%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Workbench&duration=500&pause=2000&color=B20000DA&background=0000001E&width=435&lines=I+can't+believe+what+I'm+feeling+when+I'm+right+near;Your+vibrant+colors+makes+the+sadness+;Disappear;Such+is+love%2C;Makes+me+happy+we're+both+artists;We+changed+the+world+together%2C;More+than+we+first+started;Lets+paint+the+world;With+the+colors+of+the+rainbow+;Make+vivid+images+to+look+;So+take+your+brush%2C;Don't+be+afraid+to+show+your+talent;Spread+your+designs+;And+drown+the+earth+with+your+palette;Your+drawings+look+like+heaven+to+me;Such+piece+of+art+makes+a+lovely;Gift+to+see;+I+hope+one+day+we+will+share+memories+;You+paint+the+world+;And+I'll+play+my+melodies.)](https://git.io/typing-svg)
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
 
-$\color{#AC8182}{iwcare ~ always}$
+&emsp;&emsp;&emsp; $\color{#B20000DA}{永別了，我要重獲新生，}$
 
-&emsp; $\color{#CFC2AA}{ ~ c+h ~ always ~ encc!}$
+&emsp;&emsp;&emsp; $\color{#B20000DA}{這一生實在太令人壓抑了。}$
+&emsp;&emsp;&emsp; $\color{#B20000DA}{願你的戒指消失得無影無蹤。}$
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;  $\color{#F0F5F0}{ˆ- ⩊ -ˆ ◞}$
-[![Untitled255-20260925190226.png](https://i.postimg.cc/nrspZG31/Untitled255-20260925190226.png)](https://postimg.cc/SYpwfCFX)
-[![Untitled257-20260926180009.png](https://i.postimg.cc/QtRwMc7J/Untitled257-20260926180009.png)](https://postimg.cc/N9kpJ9pK)
-&emsp;&emsp;&emsp;&emsp;&emsp; [strawp](https://theeeesunnnn.straw.page) [gunsl](https://guns.lol/thesun./) [atab.](https://darklrd.atabook.org/)
+[![Untitled265-20260930163351.png](https://i.postimg.cc/gjkppwrv/Untitled265-20260930163351.png)](https://postimg.cc/Ppc9z5Wx)
 
-[![Untitled255-20260925190428.png](https://i.postimg.cc/zD9VvyTC/Untitled255-20260925190428.png)](https://postimg.cc/237zX8cy)
-
-$\color{#F0F5F0}{int ~ always}$ 
-$\color{#CFC2AA}{I'm ~ friendly ~ trust.}$ 
-&emsp;&emsp; $\color{#AC8182}{moree ~ info ~ in ~ sp}$ 
-$\color{#764767}{..SIGN ~ MY ~ ATA/STARw ~ pLss.}$ 
-[![Untitled256-20260925192348.png](https://i.postimg.cc/28GRJJjY/Untitled256-20260925192348.png)](https://postimg.cc/GH45TXsg)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=15&duration=500&pause=2000&color=764767&background=AC81821E&width=435&lines=%22A+lady+of+elegance+and+dignity%2C..;Her+benevolent+offer+lingers.;In+my+memory..;That+dance...+It+bought+me+a+sense+;Of+warm+and+nostalgia%2C%2C.*)](https://git.io/typing-svg)
 <details>
   <summary></summary>
   
-$\color{#F0F5F0}{birthd ~ :}$ $\color{#CFC2AA}{March}$ $\color{#AC8182}{2O}$  
-$\color{#AC8182}{age ~ :}$ 
-$\color{#764767}{l4yo}$
-</details>
+$\color{#B20000DA}{birthd ~ :}$ $\color{#870000DA}{March}$ $\color{#870000DA}{2O}$  
+$\color{#600000DA}{age ~ :}$ 
+$\color{#400000DA}{l4yo}$
 
-[![Untitled255-20260925190014.png](https://i.postimg.cc/vTWMcZdz/Untitled255-20260925190014.png)](https://postimg.cc/K3vCWFjk)
+&emsp;&emsp;&emsp;&emsp;&emsp; [strawp](https://theeeesunnnn.straw.page) [gunsl](https://guns.lol/thesun./) [atab.](https://darklrd.atabook.org/)
