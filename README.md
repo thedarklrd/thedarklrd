@@ -1,4 +1,5 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Workbench&duration=500&pause=2000&color=B20000DA&background=0000001E&width=435&lines=I+can't+believe+what+I'm+feeling+when+I'm+right+near;Your+vibrant+colors+makes+the+sadness+;Disappear;Such+is+love%2C;Makes+me+happy+we're+both+artists;We+changed+the+world+together%2C;More+than+we+first+started;Lets+paint+the+world;With+the+colors+of+the+rainbow+;Make+vivid+images+to+look+;So+take+your+brush%2C;Don't+be+afraid+to+show+your+talent;Spread+your+designs+;And+drown+the+earth+with+your+palette;Your+drawings+look+like+heaven+to+me;Such+piece+of+art+makes+a+lovely;Gift+to+see;+I+hope+one+day+we+will+share+memories+;You+paint+the+world+;And+I'll+play+my+melodies.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Workbench&duration=500&pause=2000&color=B20000DA&background=0000001E&width=435&lines=Don't+be+afraid+;We're+the+ones+who'll+help+you;Find+the+way%2C;So+much+to+say;But+don't+be+here+to+stay)](https://git.io/typing-svg)
+
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
 
