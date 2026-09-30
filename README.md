@@ -12,9 +12,13 @@
 
 <details>
   <summary></summary>
-  
+$\color{#B20000DA}{always ~ free ~ to ~ int! ~ I'm ~ friendly ~ indeed}$
+$\color{#870000DA}{~ and ~ c+h ~ is ~ heavilyy ~ enc!!!}$
+ 
 $\color{#B20000DA}{birthd ~ :}$ $\color{#870000DA}{March}$ $\color{#870000DA}{2O}$  
 $\color{#600000DA}{age ~ :}$ 
 $\color{#400000DA}{l4yo}$
+
+$\color{#400000DA}{yes ~ i ~ know ~ i ~ change ~ my ~ profile ~ alot }$
 
 &emsp;&emsp;&emsp;&emsp;&emsp; [strawp](https://theeeesunnnn.straw.page) [gunsl](https://guns.lol/thesun./) [atab.](https://darklrd.atabook.org/)
