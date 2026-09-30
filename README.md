@@ -5,6 +5,7 @@
 &emsp;&emsp;&emsp; $\color{#B20000DA}{永別了，我要重獲新生，}$
 
 &emsp;&emsp;&emsp; $\color{#B20000DA}{這一生實在太令人壓抑了。}$
+
 &emsp;&emsp;&emsp; $\color{#B20000DA}{願你的戒指消失得無影無蹤。}$
 
 [![Untitled265-20260930163351.png](https://i.postimg.cc/gjkppwrv/Untitled265-20260930163351.png)](https://postimg.cc/Ppc9z5Wx)
