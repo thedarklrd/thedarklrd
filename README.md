@@ -3,11 +3,15 @@
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
 
-&emsp;&emsp;&emsp; $\color{#B20000DA}{永別了，我要重獲新生，}$
+&emsp;&emsp;&emsp; $\color{#B20000DA}{永你能描述一下你看到的那張臉嗎？}$
 
-&emsp;&emsp;&emsp; $\color{#B20000DA}{這一生實在太令人壓抑了。}$
+&emsp;&emsp;&emsp; $\color{#B20000DA}{那是你認識的人嗎？}$
 
-&emsp;&emsp;&emsp; $\color{#B20000DA}{願你的戒指消失得無影無蹤。}$
+&emsp;&emsp;&emsp; $\color{#B20000DA}{我們絕不會傷害那隻執筆的手──畢竟}$
+
+&emsp;&emsp;&emsp; $\color{#B20000DA}{，是想像力賦予了我們生命，}$
+
+&emsp;&emsp;&emsp; $\color{#B20000DA}{卻也以此詛咒了我們。}$
 
 [![Untitled265-20260930163351.png](https://i.postimg.cc/gjkppwrv/Untitled265-20260930163351.png)](https://postimg.cc/Ppc9z5Wx)
 
