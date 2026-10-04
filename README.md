@@ -26,4 +26,4 @@ $\color{#400000DA}{l4yo}$
 
 $\color{#400000DA}{yes ~ i ~ know ~ i ~ change ~ my ~ profile ~ alot ,,,’-⩊-}$
 
-&emsp;&emsp;&emsp;&emsp;&emsp; [strawp](https://theeeesunnnn.straw.page) [gunsl](https://guns.lol/thesun./) [atab.](https://darklrd.atabook.org/)
+&emsp;&emsp;&emsp;&emsp;&emsp; [strawp](https://theeeesunnnn.straw.page) [gunsl](https://guns.lol/journalisttt) [atab.](https://darklrd.atabook.org/)
