@@ -1,2 +1,4 @@
-[![e56231fb006e451349b7614f5b3315e6.gif](https://i.postimg.cc/T1k1LkHs/e56231fb006e451349b7614f5b3315e6.gif)](https://postimg.cc/dZywg9FR)
+[![1-x4x9l-ZYRCLSr-Nk-S1ZYYrw.webp](https://i.postimg.cc/qRnh0Tzt/1-x4x9l-ZYRCLSr-Nk-S1ZYYrw.webp)](https://postimg.cc/YGrqfTNk)
+
+
 &emsp;&emsp;&emsp;&emsp;&emsp; [strawpage](https://theeeesunnnn.straw.page) [新](https://darklrd.atabook.org/) [gunsL](https://guns.lol/charlr./)
